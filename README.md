@@ -1,6 +1,6 @@
 🤯 Aprendendo java antes que minha cabeça entre em colapso.
 
-🖥️ Gosto de tecnologia, mais hardware do que software mas tamo ai. Todo estudo é importante até porque os dois se complementam.
+🖥️ Gosto de tecnologia, mais hardware do que software mas tamo ai. Até porque todo estudo é importante e ambos os dois se complementam.
 
 Cursando o sexto semestre de Engenharia da Computação - Unisul.
 
